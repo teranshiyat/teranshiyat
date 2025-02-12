@@ -10,3 +10,5 @@ Key Insights:
   - 📈 Monthly revenue trend
   - 💰 Top-performing products
   - 📊 Regional sales breakdown
+![Dash 1](https://github.com/user-attachments/assets/1eef85db-67cf-4623-966b-f297db22a17c)
+![Dash 1](https://github.com/user-attachments/assets/96e251e7-2005-45e9-ad9a-38d53d62a12b)
